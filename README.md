@@ -1,2 +1,2 @@
 # hello-world
-tradition
+skateboarding, art, electronics . .. 
